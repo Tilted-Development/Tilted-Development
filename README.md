@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on Project Boost
 - 📫 How to reach me:
 - Email: TiltDevOfficial@hotmail.com
-- Phone: 027TILTDEV
 - Address: [REDACTED]
 - Website: Currently Unavailable
 
